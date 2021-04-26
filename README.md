@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Joe and I've been learning Automation \o
+- 👋 Hi, I’m Joe a guy who works with Automation :D \o
